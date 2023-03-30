@@ -1,4 +1,5 @@
-# Hamzah-Resume
+# Hamzah Website Resume Coming soon
+
 "Hamzah Al-Ramli - A Mastermind of Cybersecurity and Creative Multimedia Design.
 
 Meet Hamzah Al-Ramli, a visionary genius who has taken the world by storm with his multifaceted skills and unparalleled creativity. With a Bachelor's degree in Computer Science, Hamzah is a seasoned expert in cybersecurity, having spent years perfecting his craft and establishing himself as a force to be reckoned with in the industry.
