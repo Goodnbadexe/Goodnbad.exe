@@ -1,5 +1,8 @@
 # Hamzah Website Resume Coming soon
 
+![DALL·E 2023-03-30 19 27 58 - Create an image of a cyber warrior defending a digital fortress against a malicious hacker attack  The cyber warrior should be in a futuristic armor s](https://user-images.githubusercontent.com/74980917/228822169-0e382beb-1665-469b-a785-e86a73e844a3.png)
+
+
 "Hamzah Al-Ramli - A Mastermind of Cybersecurity and Creative Multimedia Design.
 
 Meet Hamzah Al-Ramli, a visionary genius who has taken the world by storm with his multifaceted skills and unparalleled creativity. With a Bachelor's degree in Computer Science, Hamzah is a seasoned expert in cybersecurity, having spent years perfecting his craft and establishing himself as a force to be reckoned with in the industry.
